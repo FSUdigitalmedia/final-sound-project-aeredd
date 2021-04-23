@@ -1,6 +1,6 @@
 # My Final Sound Project
 
-##https://archive.org/details/final-sound-assignment-4-23-21-6.36-pm
+https://archive.org/details/final-sound-assignment-4-23-21-6.36-pm
 
 While I am known for being tone death and having no rhythm, I decided to embrace a techno more electric vibe for this final project...I am usually more of a country girl but hey we exploring new things. I decided to do my project based on my bitsy project, "What Comes Up, Must Come Down: A Project Powered by Adderall"
 
